@@ -1,0 +1,1 @@
+This site was created to familiarize beginners with the game Heroes of Might and Magic
